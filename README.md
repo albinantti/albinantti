@@ -1,1 +1,1 @@
-Software engineer at Omgeapoint Stockholm.
+Software engineer at Omegapoint Stockholm.
